@@ -10,5 +10,5 @@
 
 ### My contact 🌎
 
-[🚀: Моя страница VK](https://vk.com/1proger1) <br>
-[:mailbox_closed: : Telegram](https://t.me/HunterVGooD) <br>
+[🚀: Моя страница VK](https://vk.com/cant_life) <br>
+[:mailbox_closed: : Telegram](https://t.me/ProstoVladGA) <br>
